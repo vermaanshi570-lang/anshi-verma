@@ -1,3 +1,3 @@
 # anshi-verma
 This is a Girl.
-Author-Anshi Verma
+Author-Anshi Kumari Verma
